@@ -80,4 +80,4 @@ Sou um profissional com mais de **20 anos de experiência em tecnologia**, espec
 
 ---
 
-> ✉️ Estou disponível para oportunidades, projetos desafiadores e trocas sobre cibersecurança!
+> ✉️ Estou disponível para oportunidades, projetos desafiadores e trocas sobre cibersegurança!
